@@ -1,0 +1,2 @@
+# paradigm
+paradigmmm projjj
